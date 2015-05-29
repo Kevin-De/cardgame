@@ -1,1 +1,0 @@
-kleo your a faggot
